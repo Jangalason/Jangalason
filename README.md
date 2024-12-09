@@ -1,0 +1,16 @@
+- 👋 Hi, I’m @Jangalason
+- 👀 I’m interested in business...
+- 🌱 I’m currently looking for a campany, people or partnership.i am based in tanzania a country rich in natural resources and minerals tanzania is among the leading producer of various precious minerals including gold,tanzanite,ruby and other gemstons we offer opportunities for exchange and trade of this products internationally ensuring top-quality standard in addition to minerals,Tanzania has abundant raw materials suitable for prod and trade including agriculture products,fores resources and industrial goods+...
+- 💞️ I’m looking to collaborate on partnership with both local and international stakeholder for matual growth and development...
+- 
+- 📫 How to reach me +255789581558 whattsp...
+- 😄 Pronouns: ...
+- ⚡ Fun fact: ...fb
+
+- 
+
+<!---
+Jangalason/Jangalason is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
+
